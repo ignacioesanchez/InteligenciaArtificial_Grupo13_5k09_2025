@@ -1,0 +1,1 @@
+# InteligenciaArtificial_Grupo13_5k09_2025
